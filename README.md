@@ -1,1 +1,1 @@
-# Xyntrix-pub-hub
+# AMwZ X Xyntrix Steal an egg Op script by AMwZ
